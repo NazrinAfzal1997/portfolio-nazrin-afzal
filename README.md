@@ -172,7 +172,6 @@ Backend Engineer
 Shah Alam, Selangor, Malaysia
 
 📧 [nazrinafzal.official@gmail.com](mailto:nazrinafzal.official@gmail.com)
-📱 +6013-252-2684
 
 ---
 
